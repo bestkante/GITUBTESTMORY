@@ -1,1 +1,1 @@
-Management School
+School Management
